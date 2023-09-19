@@ -1,2 +1,2 @@
 #git_special
-wowzers!
+I HATE DOGS!!!!!
